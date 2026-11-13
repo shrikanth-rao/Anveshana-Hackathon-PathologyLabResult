@@ -1,1 +1,0 @@
-# Anveshana-Hackathon-PathologyLabResult
